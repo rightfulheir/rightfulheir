@@ -1,11 +1,11 @@
-## Hi there 👋
+## Hi, hello! ^_^
 
 <!--
 **rightfulheir/rightfulheir** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
+- ᰔᩚ my name's Hasreza, but you may call me Reza/Hasra ^^
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
