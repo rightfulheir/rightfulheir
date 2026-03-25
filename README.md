@@ -15,3 +15,5 @@
 
 - I'm... Kinda a selfshipper?
  - **✦ I'm into Kahmunrah from natm, but I doubt anyone knows him ꃋᴖꃋ**
+
+- Hang out /w me!!! Unless I have dni in my name, anyone is welcomed to c+h with me! ^^
