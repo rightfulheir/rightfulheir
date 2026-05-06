@@ -21,13 +21,12 @@ ${\textsf{\color{#a4ff00} 𝐃𝐎𝐍'𝐓. 𝐂𝐑𝐎𝐒𝐒. 𝐓𝐇𝐈�
 - Fandoms
 > FNAF, DW, Hetalia, AvA, MCYT, some of TADC fans, PKMN, Gorillaz and other __MOSTLY__ mainstream fandoms... (its ok we can still be friends ^_^)
 - People who make inappropriate jokes when we aren't even close..? Bonus points if I don't even know you at all :sob:
-- Adults adults adults and young adults unless we're friends for a while
+- Adults adults adults and young adults unless we've been friends for a while
 
 ## ${\textsf{\color{#a4ff00} STRICT DNI LIST }}$
 - proshippers, darkshippers, zoophiles, ANYTHING that's related to these, please kindly do not interact ^_^
 - racist. people who treats it like it's some kind of unimportant shit :pray:
 - Homophobes, heterophobes (does that even exist), I don't care about your propaganda bro,,, sweats.
+- Rude people in general
 
 ![alt text](https://github.com/user-attachments/assets/4bf9b674-4915-4923-9d5f-3552978f7bab)
-
-## __STILL WIP BTW!!!__
