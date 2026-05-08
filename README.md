@@ -18,10 +18,12 @@ ${\textsf{\color{#a4ff00} "𝐃𝐎𝐍'𝐓. 𝐂𝐑𝐎𝐒𝐒. 𝐓𝐇𝐈
 - I use a lot of tone tags, so sorry if that bothers our interactions ^_^"
  > Just ask me to not use it okay
 - I get uncomfortable and overwhelmed easily, so I'll either go silent or just have __IWC/IWEC__ in my name
+- rarely with friends, mostly alone.
+- __DON'T__ cover me unless we're friends.
 
 ## ${\textsf{\color{#a4ff00} THIN ICE. }}$
 - Fandoms
-> FNAF, DW, Hetalia, AvA, MCYT, some of TADC fans, PKMN, Gorillaz and other __MOSTLY__ mainstream fandoms... (its ok we can still be friends ^_^)
+> FNAF, DW, Hetalia, AvA, MCYT, some of TADC fans, PKMN, Gorillaz, Gravity Falls, SU and other __MOSTLY__ mainstream fandoms... (its ok we can still be friends ^_^)
 - People who make inappropriate jokes when we aren't even close..? Bonus points if I don't even know you at all :sob:
 - Adults adults adults and young adults unless we've been friends for a while
 
