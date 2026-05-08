@@ -15,6 +15,8 @@ ${\textsf{\color{#a4ff00} "𝐃𝐎𝐍'𝐓. 𝐂𝐑𝐎𝐒𝐒. 𝐓𝐇𝐈
  > S4M, GGG, Hamilton, TADC, TWF
 - Been a fan of Kahmunrah since December of 2023 :-) <3
  > hes so cool and tuff
+ 
+ > yes i love both the second and fourth movies version of him ❤️
 - I use a lot of tone tags, so sorry if that bothers our interactions ^_^"
  > Just ask me to not use it okay
 - I get uncomfortable and overwhelmed easily, so I'll either go silent or just have __IWC/IWEC__ in my name
