@@ -31,9 +31,4 @@ ${\textsf{\color{#a4ff00} "𝐃𝐎𝐍'𝐓. 𝐂𝐑𝐎𝐒𝐒. 𝐓𝐇𝐈
 - Homophobes, heterophobes (does that even exist), I don't care about your propaganda bro,,, sweats.
 - Rude people in general
 
-![alt text](https://github.com/user-attachments/assets/4bf9b674-4915-4923-9d5f-3552978f7bab)
-
-
-## SOCIALS ARE WIP ill make strawpage soon enough
-
-<p align="center"> <img width="539" height="365" alt="IMG_0541" src="https://github.com/user-attachments/assets/e7951f99-5f70-47df-b1b1-bced75de44b4" />
+<p align="center"> <img width="500" height="100" src="https://github.com/user-attachments/assets/4bf9b674-4915-4923-9d5f-3552978f7bab" />
