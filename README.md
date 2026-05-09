@@ -36,3 +36,5 @@ ${\textsf{\color{#a4ff00} "𝐃𝐎𝐍'𝐓. 𝐂𝐑𝐎𝐒𝐒. 𝐓𝐇𝐈
 - Rude people in general
 
 <p align="center"> <img width="500" height="100" src="https://github.com/user-attachments/assets/4bf9b674-4915-4923-9d5f-3552978f7bab" />
+
+<p align="center"> I will make other socials soon ^-^
