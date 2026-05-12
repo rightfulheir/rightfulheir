@@ -12,7 +12,7 @@ ${\textsf{\color{#a4ff00} "𝐃𝐎𝐍'𝐓. 𝐂𝐑𝐎𝐒𝐒. 𝐓𝐇𝐈
 - I'm a minor, ok. Turning 16 in August!!
 - Would be great if you know boundaries :-)))
 - A HUGEEE fan of NaTM. I'm into other fandoms too! vv
- > S4M, GGG, Hamilton, TADC, TWF
+ > S4M, GGG, Hamilton, TADC, TWF, Mythologies! Especially Egyptian mythology (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)
 - Been a fan of Kahmunrah since December of 2023 :-) <3
  > hes so cool and tuff
  
